@@ -274,6 +274,3 @@ Créé avec ❤️ pour mettre en valeur votre parcours professionnel en Data En
 
 ---
 
-**Fait avec Claude AI - Novembre 2025**
-
-*"Un grand portfolio commence par une belle présentation"* 🚀
